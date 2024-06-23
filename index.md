@@ -56,7 +56,7 @@ Algunas de nuestras principales propuestas incluyen:
 
 Si compartes nuestros valores y quieres formar parte de un movimiento que trabaja por un futuro mejor para Santa Cruz y la Patagonia, te invitamos a unirte a **Lealtad Santacruceña**. 
 
-[¡Únete ahora!](#)
+[¡Únete ahora!](https://docs.google.com/forms/d/1x8kJWP_6leCPXtNhmjoXO3k5-qbK1sEw66GltbdM4I4/viewform?chromeless=1&edit_requested=true)
 
 ## Contacto
 
